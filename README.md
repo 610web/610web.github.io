@@ -4,4 +4,4 @@
 
 610逆天游戏
 
-#[傻逼游戏下载点我](https://www.123865.com/s/SOxAjv-p8WFv)
+#[傻逼病毒下载点我](https://www.123865.com/s/SOxAjv-p8WFv)
