@@ -19,6 +19,8 @@
 
 # 那么[城关励志故事](https://baike.baidu.com/tashuo/browse/content?id=465f421a9e60a8bbf14922bd)呢
 
+# 我要玩[实验中学游戏](https://610m.lanzouu.com/iSmo43pginri)
+！ password:fwnd
 ### 城关趣事
 
 > [_语文老师_]() 评论说:  
