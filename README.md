@@ -10,10 +10,10 @@
 
 ![刘奕兴](wow.jpeg)
 
-# [在线购买实验中学城关校区房产证](https://cn.bing.com/search?qs=n&form=seinsb&sp=-1&q=%E6%83%B3%E5%B1%81%E5%90%83)
+# 看完后我想[在线购买实验中学城关校区房产证](https://cn.bing.com/search?qs=n&form=seinsb&sp=-1&q=%E6%83%B3%E5%B1%81%E5%90%83)
 
-# [了解城关](https://cn.bing.com/search?q=%E5%B1%8E&qs=ds&form=QBRE)
+# 在买之前我想先[了解城关](https://cn.bing.com/search?q=%E5%B1%8E&qs=ds&form=QBRE)
 
-# [什么是屎](https://baike.baidu.com/item/%E8%95%B2%E6%98%A5%E5%8E%BF%E5%9F%8E%E5%85%B3%E9%AB%98%E4%B8%AD/4814894)
+# 我突然想搜[什么是屎](https://baike.baidu.com/item/%E8%95%B2%E6%98%A5%E5%8E%BF%E5%9F%8E%E5%85%B3%E9%AB%98%E4%B8%AD/4814894)
 
-# [城关励志故事](https://baike.baidu.com/tashuo/browse/content?id=465f421a9e60a8bbf14922bd)
+# 那么[城关励志故事]呢？(https://baike.baidu.com/tashuo/browse/content?id=465f421a9e60a8bbf14922bd)
