@@ -36,4 +36,4 @@
 > > >
 > > > [同意🐒]()(-1)  [举报😂]()(70亿)
 
-# Thank you thank you American🇺🇸🇺🇸🇺🇸
+# Thank you thank you America🇺🇸🇺🇸🇺🇸
