@@ -6,7 +6,7 @@
 
 ![78城关](42a98226cffc1e178a82f2b5d7c8e103738da87743a4.jpeg)
 
-# 我突然想搜[城关详细信息](https://baike.baidu.com/item/%E8%95%B2%E6%98%A5%E5%8E%BF%E5%9F%8E%E5%85%B3%E9%AB%98%E4%B8%AD/4814894)
+# 我想搜[城关详细信息](https://baike.baidu.com/item/%E8%95%B2%E6%98%A5%E5%8E%BF%E5%9F%8E%E5%85%B3%E9%AB%98%E4%B8%AD/4814894)
 
 🙉🙉🙉
 # "略微"修改
